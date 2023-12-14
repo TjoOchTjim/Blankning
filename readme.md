@@ -1,0 +1,1 @@
+Analysera blankade svenska aktier
